@@ -1,0 +1,2 @@
+# Sayyora
+tajriba ishi
